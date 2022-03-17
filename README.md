@@ -1,1 +1,1 @@
-# khabibullina1238-gmail.com
+# khabibullina1238@gmail.com
